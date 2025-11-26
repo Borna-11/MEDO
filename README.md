@@ -1,1 +1,1 @@
-# MEDO
+Borna Salopek 26.11.2025.
